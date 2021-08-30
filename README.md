@@ -1,0 +1,2 @@
+# hipaa-online-training
+hipaa-online-training https://www.hipaaguide.net/hipaa-online-training/ When it comes to HIPAA training, there are two options. You can develop your own training course from scratch or you can opt for a third-party solution. Training companies may give you the option of having a HIPAA compliance expert travel to your place of work to provide training, but it is now very common for HIPAA online training to be provided as there are clear advantages.
